@@ -1,2 +1,2 @@
-# SpatialDS.github.io
+# singhchandrashekhar.github.io
 
